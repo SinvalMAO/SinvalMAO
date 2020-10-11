@@ -5,4 +5,4 @@
 - 🤔 I’m looking for help with my personal projects
 - 💬 Ask me about JavaScript, React and entrepreneurship
 - 📫 How to reach me: sinval.s.s.junior@gmail.com
-- ⚡ Fun fact: Já trabalhei confinado.
+- ⚡ Fun fact: I've worked confined.
